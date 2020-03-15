@@ -1,0 +1,2 @@
+# amrokrki
+Software Developer
